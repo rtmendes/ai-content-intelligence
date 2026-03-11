@@ -1,0 +1,14 @@
+# Battlefield 6 teams hit with layoffs despite ‘biggest launch in franchise history’
+
+*Satirical Commentary | Original story from Unknown*
+
+Battlefield 6 teams hit with layoffs despite ‘biggest launch in franchise history’: The Battlefield franchise has seen some of its most significant changes in recent years, with Battlefield 6 bringing a new game engine, new game modes, and a new game mode entirely. However, despite the release of Bf6 in a “biggest launch in franchise history”, the Battlefield 6 team has been hit with layoffs. According to reports, 120 employees have left the team in the wake of the latest game. The layoffs come despite the fact that “Battlefield 6 was the biggest launch in the franchise’s history, with the number of players reaching over 20 million”, according to an official statement from DICE. The statement goes on to say that the studio has "still delivered one of the most successful launches in the Battlefield franchise’s history", with 700,000 players starting the game on the day of its release. As of the writing of this article, Battlefield 6 is the latest addition to the franchise, arriving on October 29th. While this may not have been the most successful launch in franchise history, Bf6 certainly has its share of critics. Many players have criticised the game for its lack of content, with some feeling the game simply adds to the ‘endless’ cycle of DLC that has plagued the franchise. DICE has also been criticised for the way in which the game was developed. The studio has been accused of not being able to handle the game's technical requirements and the sheer number of things to do. While Bf6 has its own issues, its launch is a stark contrast to some of the other games in the franchise, such as the Battlefield 3 launch. Bf3, for example, saw over 10 million players, with many claiming it was the most successful launch in franchise history. The release of Bf6 has come shortly after the release of the much-maligned Battlefield 2042, which has also seen issues with the game's launch. Battlefield 2042's launch was criticised by many, with a number of players stating that the game had a host of technical issues. Some even felt that the game was poorly tested, with many players complaining of glitches and bugs. Bf2042's launch is a stark contrast to the latest entry in the franchise, which has been praised for its launch. Bf6 is the latest game in the franchise and is available to play on Xbox, Playstation, and PC. What are some criticisms of Bf6, and what impact has the game's launch had on the Battlefield franchise as a whole?
+
+---
+
+**📰 Source & Attribution**  
+Original article: [Unknown](https://www.theverge.com/entertainment/891378/battlefield-6-layoffs-ea)  
+Topics:   
+Generated: 2026-03-11 09:54 UTC
+
+*This is a satirical/sarcastic commentary based on real news from Unknown. All facts are attributed to the original source. This content is for entertainment and commentary purposes.*
